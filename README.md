@@ -1,0 +1,2 @@
+# premium-x-clamp-weld-001-cross-clamp-welding-right-an
+Tired of mismatched clamps and crooked welds? Your projects deserve precision from the first cut.  This Notion template transforms your workshop chaos into a structured system for tracking every cross clamp, welding project, and right angle craft. No more lost measurements or duplicate purchases—just a seamless workflow that keeps your angles true
